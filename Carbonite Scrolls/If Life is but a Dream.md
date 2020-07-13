@@ -35,7 +35,7 @@
 
 ## Rhythm and Poetry
 
-Listen to this track in song form right here
+Listen to this track in song form right [here](https://open.spotify.com/track/4HlQvrSDHH8VBOynI0rTeX?si=7V9burdiRamkXVY0CGghQg)
 
 
 
@@ -56,5 +56,5 @@ Find my latest song releases, happenings & projects [*here](https://linktr.ee/am
 You are always welcome to visit my mothership over at [*douglas.life](https://douglas.life) ***👀
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ0MDU1NTMyOF19
+eyJoaXN0b3J5IjpbLTE5ODQxMTExODldfQ==
 -->
