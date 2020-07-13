@@ -1,4 +1,3 @@
-
 # Infinite Reflections
 
 The lessons I am teaching I am learning while I’m breathing,
@@ -43,5 +42,5 @@ Feel the most high we are speaking through,
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU0Mzg4NzQyN119
+eyJoaXN0b3J5IjpbLTYwNDI1OTE3OSwxNTQzODg3NDI3XX0=
 -->
