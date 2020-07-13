@@ -30,11 +30,8 @@ Why are the fanciest dresses never worn,
 
 what if black holes are where our universe is born,
 
-## What is life?
 
-![My love Blum and I at Tayrona National Park](https://cdn-images-1.medium.com/max/2560/1*rEVsL2eptKFHOe-T6gstYg.jpeg)
-
-## Rhythm and Poetry
+## This poem was recorded into a song
 
 Listen to this track in song form right [here](https://open.spotify.com/track/4HlQvrSDHH8VBOynI0rTeX?si=7V9burdiRamkXVY0CGghQg)
 
@@ -51,6 +48,7 @@ But one, unifies all around the love will collide,
 Here we are like the stars by a moon in the sky,
 
 
+![My love Blum and I at Tayrona National Park](https://cdn-images-1.medium.com/max/2560/1*rEVsL2eptKFHOe-T6gstYg.jpeg)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYzMDM0NDIwMl19
+eyJoaXN0b3J5IjpbLTIwNTI0Njc5NTddfQ==
 -->
