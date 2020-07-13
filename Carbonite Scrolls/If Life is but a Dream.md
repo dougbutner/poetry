@@ -37,7 +37,7 @@
 
 Listen to this track in song form right here
 
- <iframe src="https://medium.com/media/18115751936dfde81c43390489ecb767" frameborder=0></iframe>
+
 
 ## Bonus Section (From below these lyrics in my rhyme book)
 
@@ -56,5 +56,5 @@ Find my latest song releases, happenings & projects [*here](https://linktr.ee/am
 You are always welcome to visit my mothership over at [*douglas.life](https://douglas.life) ***👀
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2NTY0NDA1OTVdfQ==
+eyJoaXN0b3J5IjpbLTQ0MDU1NTMyOF19
 -->
