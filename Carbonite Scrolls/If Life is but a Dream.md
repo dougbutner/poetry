@@ -1,4 +1,3 @@
-
 **If life is but a dream,** what happens when you wake, 
 
 I imagine you arrive inside a picturesque place,
@@ -50,5 +49,5 @@ Here we are like the stars by a moon in the sky,
 
 ![My love Blum and I at Tayrona National Park](https://cdn-images-1.medium.com/max/2560/1*rEVsL2eptKFHOe-T6gstYg.jpeg)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNTI0Njc5NTddfQ==
+eyJoaXN0b3J5IjpbMzYyNDQ1OTQ1XX0=
 -->
