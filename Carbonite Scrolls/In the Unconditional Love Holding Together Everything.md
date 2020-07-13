@@ -37,7 +37,7 @@ Glimpse it all as an instant,
 
 Within us, heaven is persistent, 
 
-Wishin, I could share everything, 
+Wishin' I could share everything, 
 
 More than one soul could ever see, 
 
@@ -46,5 +46,6 @@ In the **Unconditional Love** holding together everything
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg0NTQ5NTA0NywxOTg0ODcyOTgzXX0=
+eyJoaXN0b3J5IjpbLTcxNjc4MzMwOCwtODQ1NDk1MDQ3LDE5OD
+Q4NzI5ODNdfQ==
 -->
