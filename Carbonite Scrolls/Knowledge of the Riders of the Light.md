@@ -1,3 +1,4 @@
+# Knowledge of the Riders of the Light
 I ask for God’s guidance as I hone in these energies,
 
 I love you, I love you, I love you, phoning a friend or three,
@@ -39,15 +40,22 @@ every single thought I ever had,
 every card ever dealt,
 
 I’m in my motion,
+
 **I’m in my motion,**
+
 I’m exactly how I feel when I twist up an element,
+
 Focus on the energy the rest is irrelevant,
+
 What is love without life, what is dark without light,
 ___
 **Now I can be free,**
+
 Life is replicated from the simplest of molecules,
+
 What will will be,
-What will will be.
+
+**What will will be.**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NDg4NDAyOTNdfQ==
+eyJoaXN0b3J5IjpbMTk3Nzc4MTMxOV19
 -->
