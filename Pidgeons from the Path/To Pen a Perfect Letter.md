@@ -1,0 +1,30 @@
+# I once was similar to type,
+
+## that would step up on the mic,
+
+## to talk about what could be,
+
+## like ambitions of small gratitude from the physical,
+
+# I mislayed the Scripture that portrayed the ritual,
+
+## mixing what I saw and what I thought I should give to you,
+
+## maybe it’d be something that would stick with you,
+
+## to think about in a way that I didn’t do,
+
+## all about the vocal inflection,
+
+# eyeballs gripping you,
+
+## Funny how much stuff we didn’t listen to,
+
+## Stuck watching glorified confetti light poster projects missing glue,
+
+# Minds eyes find the prize in the visual,
+
+## and forged lord’s sword for the formidable literal,
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTE4NjU5MDMyNF19
+-->
