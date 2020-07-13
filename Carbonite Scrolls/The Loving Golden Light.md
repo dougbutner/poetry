@@ -55,10 +55,11 @@ ___
 
 The Loving Golden Light
 
+A Poem by Ammon ([Listen to my songs on Spotify](https://open.spotify.com/artist/4seBsQrvamB7bbQ2UIftxU))
 ___
 
-A Poem by Ammon ([Listen to my songs on Spotify](https://open.spotify.com/artist/4seBsQrvamB7bbQ2UIftxU))
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc1NDQ1OTEzM119
+eyJoaXN0b3J5IjpbMTg4NTM1Njk2MV19
 -->
