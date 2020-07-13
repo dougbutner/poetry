@@ -1,7 +1,4 @@
-# The Loving Golden Light (Poem)
-
-## Let the stars play in the heavens, 
- ##conduct the symphony with silent night,
+# The Loving Golden Light
 
 
 Let the stars play in the heavens, 
@@ -23,9 +20,13 @@ white column inside, I feel it,
 ___
 
 White fire always alive, 
+
 in the now that we arrive,
+
 This golden light, this vibe 
+
 that rides life into the sky, 
+
 so we will never die,
 ___
 
@@ -50,9 +51,13 @@ of all that is within us, you are I and I are we,
 
 So even in the darkest night, the heart inside can see.
 
+___
+
+
+
 
 A Poem by Ammon ([Listen to my songs on Spotify](https://open.spotify.com/artist/4seBsQrvamB7bbQ2UIftxU))
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkyMTM4MTE0MF19
+eyJoaXN0b3J5IjpbNzY3MDQ3NTQxXX0=
 -->
