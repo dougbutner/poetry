@@ -53,11 +53,12 @@ So even in the darkest night, the heart inside can see.
 
 ___
 
+The Loving Golden Light
 
-
+___
 
 A Poem by Ammon ([Listen to my songs on Spotify](https://open.spotify.com/artist/4seBsQrvamB7bbQ2UIftxU))
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY3MDQ3NTQxXX0=
+eyJoaXN0b3J5IjpbMTc1NDQ1OTEzM119
 -->
