@@ -9,25 +9,25 @@
 
 ### And what happens to our beliefs when we die,
 
-### besides blissfulness restricted when we were living our lives,
+besides blissfulness restricted when we were living our lives,
 
-### So why not believe we are gods beneath the sky,
+So why not believe we are gods beneath the sky,
 
-### so a part of them can shine through you and I,
+so a part of them can shine through you and I,
 
 ## The true white fire,
 
-### And what if how we lived our lives could change our DNA,
+And what if how we lived our lives could change our DNA, 
 
-### and we could pass the changes to our kids to live the same,
+and we could pass the changes to our kids to live the same, 
 
-### What if it all mattered, what if nothing did,
+What if it all mattered, what if nothing did, 
 
-### and could both be true or must just one to exist,
+and could both be true or must just one to exist, 
 
-### Why are the fanciest dresses never worn,
+Why are the fanciest dresses never worn, 
 
-### what if black holes are where our universe is born,
+what if black holes are where our universe is born,
 
 ## What is life?
 
@@ -56,5 +56,5 @@ Find my latest song releases, happenings & projects [*here](https://linktr.ee/am
 You are always welcome to visit my mothership over at [*douglas.life](https://douglas.life) ***👀
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5ODQxMTExODldfQ==
+eyJoaXN0b3J5IjpbLTQ2MjA1MDU4OF19
 -->
