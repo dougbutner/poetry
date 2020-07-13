@@ -9,8 +9,10 @@ So long the sane mind gone blind,
 The same mind that bind to this frame, I, 
 
 Gave mine a vessel and became time,
-> # I close my eyes, two, open up my eye, 
-> #Sacrifice my body for a ride, 
+
+I close my eyes, two, open up my eye, 
+
+Sacrifice my body for a ride, 
 > #On the infinite vibe, and when inside, 
 > #Love and light collide, 
 > #nowhere for fear to hide,
@@ -30,5 +32,5 @@ Gave mine a vessel and became time,
 ~ ONE ~**
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk4NDg3Mjk4M119
+eyJoaXN0b3J5IjpbMjU5NzI5OTMxLDE5ODQ4NzI5ODNdfQ==
 -->
