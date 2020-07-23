@@ -26,9 +26,9 @@ I am tuned in, moving wind with my trees,
 
 I breathe in to all I believe,
 
-I am him, I am her, I am love,I am we,
+I am him, I am her, I am love, I am we,
 
 **I Am We.**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MTk4MzkwNDBdfQ==
+eyJoaXN0b3J5IjpbMTY5NDcxMzYzNiwtMTgxOTgzOTA0MF19
 -->
