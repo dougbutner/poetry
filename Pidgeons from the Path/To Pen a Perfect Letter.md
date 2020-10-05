@@ -31,12 +31,11 @@ eyeballs gripping you,
 
 Funny how much stuff we didn’t listen to,
 
-Stuck watching glorified confetti light poster projects missing 
-glue,
+Stuck watching glorified confetti light poster projects missing glue,
 
 Minds eyes find the prize in the visual,
 
 and forged lord’s sword for the formidable literal,
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNTA1NTYyOTNdfQ==
+eyJoaXN0b3J5IjpbNjc0ODIzNjkzLC0xMTUwNTU2MjkzXX0=
 -->
