@@ -3,7 +3,7 @@ I always wished I had the skill to pen a perfect letter,
 
 Vibrations on the mic suit me better,
 
-clover clubs seeds spade empowerment and pleasure,
+clover clubs seeds spade diamond of pleasure,
 
 they told me success is a b*tch,
 
@@ -37,5 +37,6 @@ Minds eyes find the prize in the visual,
 
 and forged lord’s sword for the formidable literal,
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjc0ODIzNjkzLC0xMTUwNTU2MjkzXX0=
+eyJoaXN0b3J5IjpbLTk1ODYxNTA0Miw2NzQ4MjM2OTMsLTExNT
+A1NTYyOTNdfQ==
 -->
