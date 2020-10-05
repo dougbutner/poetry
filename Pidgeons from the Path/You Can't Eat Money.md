@@ -25,10 +25,11 @@ Funny, all my food from the Sun and the sea,
 I am tuned in, moving wind with my trees,
 
 I breathe in to all I believe,
-
+ 
 I am him, I am her, I am love, I am we,
 
 **I Am We.**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY5NDcxMzYzNiwtMTgxOTgzOTA0MF19
+eyJoaXN0b3J5IjpbLTEwNDc2MDEzNDgsMTY5NDcxMzYzNiwtMT
+gxOTgzOTA0MF19
 -->
