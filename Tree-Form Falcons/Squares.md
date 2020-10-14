@@ -1,6 +1,6 @@
 I take squares anywhere like FedEx,
 
-and spread knowledge around the world like TedX,
+..and spread knowledge around the world like TedX,
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjQ2Nzk2MDhdfQ==
+eyJoaXN0b3J5IjpbLTY4NzYzNDA1Nl19
 -->
