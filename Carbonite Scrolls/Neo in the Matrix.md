@@ -6,7 +6,7 @@ You are Neo in the matrix, we are one divine,
 
 The oracle's inside in stillness resides,
 
-For freedom is yours, walk it on your own time,
+For freedom is yours, fly it on your own time,
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ4OTgxMTAxOV19
+eyJoaXN0b3J5IjpbMjEzMzY3ODA1XX0=
 -->
