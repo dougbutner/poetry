@@ -1,4 +1,6 @@
 # This is Poetry
+___
+
 In [Carbonite Scrolls](https://github.com/dougbutner/poetry/tree/master/Carbonite%20Scrolls), you will find a shattered scroll of ancient knowledge, painstakingly reconstructed with tape made of the wind. 
 
 ___
@@ -12,3 +14,5 @@ ___
 eyJoaXN0b3J5IjpbNzQ5MjQ4Mjk4LC0zOTYzMjY4NjksMTQyND
 U5MjI4NSwtMjY4Mzg1NjM3XX0=
 -->
+
+___
