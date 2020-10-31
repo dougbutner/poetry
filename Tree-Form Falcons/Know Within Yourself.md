@@ -26,11 +26,11 @@ release inertia pulling you in every direction,
 
   
 
-Breathe up from your ground.
+*Breathe up from your ground.*
 
   
 
-Know
+**Know**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjYzOTU3MzUzXX0=
+eyJoaXN0b3J5IjpbLTEyNjcyODE0MTldfQ==
 -->
