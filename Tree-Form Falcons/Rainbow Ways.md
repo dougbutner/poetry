@@ -1,3 +1,5 @@
+# Rainbow Ways
+
 It’s been a long time since I felt this way, 
 but I feel its a long clim before it breaks the day,
 and when I’m at the top I’ll know the clouds true shape, 
@@ -8,5 +10,6 @@ And maybe I’ll phase shift to my rainbow ways, float around that mountain in t
 the layer between the water and the air collide, 
 and awaken with the light that touches from the sky.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUyOTk4NDQzMSwtMTYwMjQzODEyMV19
+eyJoaXN0b3J5IjpbMTQ0NTE2MzU4MiwxNTI5OTg0NDMxLC0xNj
+AyNDM4MTIxXX0=
 -->
