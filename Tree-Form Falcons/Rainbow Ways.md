@@ -6,7 +6,7 @@ and I can laugh and listen as the echoes play,
  
 And maybe I’ll phase shift to my rainbow ways, float around that mountain in the sacred space, 
 the layer between the water and the air collide, 
-and awaken with the light that touches from the sky
+and awaken with the light that touches from the sky.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MDI0MzgxMjFdfQ==
+eyJoaXN0b3J5IjpbMTUyOTk4NDQzMSwtMTYwMjQzODEyMV19
 -->
